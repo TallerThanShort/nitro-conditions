@@ -1,6 +1,6 @@
 # nitro conditions
 
-These are the T&C's to my Nitro Giveaways.
+These are the T&C's to my Discord Nitro Giveaways.
 
 Pretty simple:
 
