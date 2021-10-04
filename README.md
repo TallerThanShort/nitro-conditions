@@ -27,3 +27,8 @@ Yes, this is literally a loophole.
 - Don't tell
 
 Actually, tell anyone you like, just... make sure they know about these terms.
+
+*I reserve the right to change these Terms "T&C's" at my own need. Any changes **will** be notified a minimum of 24 hours prior to any update.
+I also reserve the right to deny, for any reason, the giveaway of nitro to any person, being, or entity*
+
+**^The above will take effect Tuesday, October 5th at 11:35am CET.**
